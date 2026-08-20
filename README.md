@@ -12,7 +12,7 @@ major wip rn but quick info below
   ig idm ship interactions or whatever you regard that as but please do not act weird towards me for that reason !
 
 
-  uhhh im not sure what else to say other than i'm really clingy with my friends and i usually loiter nearby them because i'm scared tp actually go up to them, let me know if it makes you uncomfortable ^^
+  uhhh im not sure what else to say other than i'm really clingy with my friends and i usually loiter nearby them because i'm scared tp actually go up to them, let me know if it makes you uncomfortable ^^ (i have attachment issues for reasons id prefer not naming and get attached very easily and may get stressed if you randomly leave me but dw ^^)
     
     
     still being written because im a lazy chud bro
