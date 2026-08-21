@@ -16,7 +16,7 @@ major wip rn but quick info below
 
 
 
-  regi maxxer, currently enlisted in X-BOTS, AG:C, WaBr, 24th, EVC, EMO, CYEL, WPS (waitlist), PXP, BP:S, SP (closed), MSS (indefinite hiatus), SDO (waitlist and disbanded), Prismora, CAV, AFF (waitlist), TDR (closed, TDR i mourn you everyday), and ASC. i can typically be spotted in their events or near bakery, or loitering with friends or cuddling with random cool people ^^ !
+  regi maxxer, currently enlisted in X-BOTS, AG:C, WaBr, 24th, EVC, EMO, CYEL, WPS (waitlist), PXP, BP:S, SP (closed), MSS (indefinite hiatus), SDO (waitlist and disbanded), Prismora, CAV, AFF (waitlist), TDR (closed, TDR i mourn you everyday), ASC, and SSC. i can typically be spotted in their events or near bakery, or loitering with friends or cuddling with random cool people ^^ !
     
     
     still being written because im a lazy chud bro
