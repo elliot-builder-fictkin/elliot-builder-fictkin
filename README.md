@@ -9,7 +9,7 @@ major wip rn but quick info below
    please do not copy my skins or take inspo, if you want inspo please ask but never ever copy my skins, that's very upsetting for me as my skins are my coping mechanism as of now,,, (my grammar is probably bad idk ignore any grammar mistakes,,,) also some chud posted my skins on Pinterest, my skins are respectfully NOT free to use !!
 
 
-  idm comforting people or helping, if you’re ever in trouble please let me know ! however, please do not vent-dump on me suddenly, i’ll usually get stressed and whenever i’m stressed i usually close off and won’t talk anymore for a while or my personality will randomly do a 360 and I’ll lash out idek. if you ask to vent i’ll likely let you but if you only talk to me to use me as some kind of therapist, please respectfully do not interact with me anymore. it’s very stressful and tiring to have a friend who only seeks you out to vent on you and then leave.
+  idm comforting people or helping, i see most friends younger than me as my little children /pos. if you’re ever in trouble please let me know, i'll always try my best to help you out ! however, please do not vent-dump on me suddenly, i’ll usually get stressed and whenever i’m stressed i usually close off and won’t talk anymore for a while or my personality will randomly do a 360 and I’ll lash out idek. if you ask to vent i’ll likely let you but if you only talk to me to use me as some kind of therapist, please respectfully do not interact with me anymore. it’s very stressful and tiring to have a friend who only seeks you out to vent on you and then leave.
 
 
 
