@@ -3,7 +3,7 @@ major wip rn but quick info below
     i am currently 20 years old and very homosexual and study law ! (big shocker i know)
     
     
-   individuals under 15, please DNI, interacting with people so young makes me nervous because i'm scared of children, they are evil and mean !!! /sil (but please do DNI) 
+   individuals under 15, please DNI, interacting with people so young makes me nervous because i'm scared of children, they are evil and mean !!! /sil (but please do DNI) DNI T.R.A.S.H (transphobic, racist, ableist, sexist, homophobic). BIG DNI on boundary breaker's (MCYT), if you do you're gross in my eyes and i will refuse to interact with you. typically i love sitting with and chatting unless my name says otherwise. if you force an interaction when my name says DNIUF (and you're not an oomfie ofc) i'll likely snap at you and WILL lash out in some way. if you're in my DNI list, please do not pretend you aren't. i do not like people who lie to me it's very hurtful.
    
    
    please do not copy my skins or take inspo, if you want inspo please ask but never ever copy my skins, that's very upsetting for me as my skins are my coping mechanism as of now,,, (my grammar is probably bad idk ignore any grammar mistakes,,,) also some chud posted my skins on Pinterest, my skins are respectfully NOT free to use !!
