@@ -50,7 +50,7 @@
  </details>
 
 <a href="https://localelliotkins.straw.page/">
-  <img src="https://cdn.corenexis.com/f/HsHfX6r6kXg.webp" width="50" height="60"> 
+  <p align="center"><img width="100" height="18" alt="tumblr_fdfd11345e3fdf6dd65a1d09c5d0a20e_7fe62277_100" src="https://github.com/user-attachments/assets/576bc861-6aba-4aa8-bd56-fab1a6f3e1c1" /> 
 <a href="https://elliotbuilders.atabook.org/">  
   <img src="https://cdn.corenexis.com/f/0mfsynMCS1U.webp" width="50" height="50">
 <a href="https://pronouns.cc/@ellioto">  
