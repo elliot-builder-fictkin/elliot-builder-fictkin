@@ -31,7 +31,7 @@
 
   <p align="center">$\color{#CB7660}IWC \space !!$ 
   <p align="center">$\color{#CB7660}- \space Elliot \space Kins \space and \space Yumes$
-  <p align="center">$\color{#CB7660}- \space TBA \space maybe$
+  <p align="center">$\color{#CB7660}- \space Elliot \space Shippers \space (unless \space friends)$
  </details>
 
  <div align="center">
@@ -41,7 +41,10 @@
   </summary>
 </p>
 
-<p align="center">$\color{#D79771}TBA$
+<p align="center">$\color{#D79771}- \space i \space am \space a \space dog \space kin! \space however, \space it \space is \space not \space meant \space to \space be \space a \space petplay \space kind \space of \space thing! \space i \space just \space find \space comfort \space in \space dogs \space and \space relate \space to \space them!$
+<p align="center">$\color{#D79771}- \space i \space don't \space mind \space jokes \space but \space please \space keep \space it \space SFW \space unless \space you're \space a \space friend \space and \space above \space the \space age \space of \space 18!$
+<p align="center">$\color{#D79771}- \space i \space am \space typically \space off-tab \space or \space afk \space so \space always \space w2i \space or \space i \space likely \space won't \space get \space your \space message!$
+<p align="center">$\color{#D79771}- \space i \space am \space typically \space off-tab \space or \space afk \space so \space always \space w2i \space or \space i \space likely \space won't \space get \space your \space message!$  
  </details>
 <p align="center"><img width="100" height="18" alt="tumblr_fdfd11345e3fdf6dd65a1d09c5d0a20e_7fe62277_100" src="https://github.com/user-attachments/assets/576bc861-6aba-4aa8-bd56-fab1a6f3e1c1" /> <img width="100" height="18" alt="tumblr_c098137af57d6943f8d269568fee0853_48251747_100" src="https://github.com/user-attachments/assets/66434ed3-2817-445c-b7ff-6344d1af90fc" /> <img width="98" height="18" alt="tumblr_ca89011de5783ab03c8703506449723f_70c263de_100" src="https://github.com/user-attachments/assets/0da25e8f-9287-4dd4-85f5-aaf42f98f67c" />
 
