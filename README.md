@@ -46,19 +46,25 @@
 <p align="center">$\color{#D79771}- \space i \space am \space typically \space off-tab \space or \space afk \space so \space always \space w2i \space or \space i \space likely \space won't \space get \space your \space message!$
 <p align="center">$\color{#D79771}- \space can \space typically \space be \space sighted \space in \space Elliot \space skins! \space idm \space if \space you \space come \space up \space to \space me \space to \space talk \space or \space sit$
 <p align="center">$\color{#D79771}with \space me \space but \space please \space don't \space cover \space me \space or \space my \space friends \space or \space interrupt \space me \space when \space i'm \space trying \space to \space have \space a \space conversation \space with \space them!$
-<p align="center">$\color{#D79771}- \space always \space open \space to \space C*H \space and \space interactions \space unless \space my \space name \space says \space otherwise!$
+<p align="center">$\color{#E4B883}- \space always \space open \space to \space C*H \space and \space interactions \space unless \space my \space name \space says \space otherwise!$
+ <p align="center">$\color{#E4B883}- \space last \space note!! \space please \space do \space not \space copy \space my \space skins! \space they \space are \space a \space kind \space of \space coping \space link \space for \space me \space and \space i \space do \space not \space want \space them \space stolen!$
+<p align="center">$\color{#E4B883}- \space however, \space if \space you'd \space like \space just \space light \space inspo \space please \space ask \space first!$
  </details>
 
-<a href="https://localelliotkins.straw.page/">
-  <p align="center"><img width="100" height="18" alt="tumblr_fdfd11345e3fdf6dd65a1d09c5d0a20e_7fe62277_100" src="https://github.com/user-attachments/assets/576bc861-6aba-4aa8-bd56-fab1a6f3e1c1" /> 
+<p align="center">$\color{#E4B883}psssst \space ! \space the \space badges \space direct \space to \space my \space straw, \space ata, \space and \space prnscc!! \space ⤵︎$
+<break></break>
+
+
+<div>
+  <a href="https://localelliotkins.straw.page/">
+  <img src="https://github.com/user-attachments/assets/576bc861-6aba-4aa8-bd56-fab1a6f3e1c1" /> 
 <a href="https://elliotbuilders.atabook.org/">  
-  <img src="https://cdn.corenexis.com/f/0mfsynMCS1U.webp" width="50" height="50">
+  <img src="https://github.com/user-attachments/assets/66434ed3-2817-445c-b7ff-6344d1af90fc">
 <a href="https://pronouns.cc/@ellioto">  
-  <img src="https://cdn.corenexis.com/f/11ihBBAMDyr.webp" width="50" height="60">
+  <img src="https://github.com/user-attachments/assets/0da25e8f-9287-4dd4-85f5-aaf42f98f67c">
 </a>
 </p>
 
-<p align="center"><img width="100" height="18" alt="tumblr_fdfd11345e3fdf6dd65a1d09c5d0a20e_7fe62277_100" src="https://github.com/user-attachments/assets/576bc861-6aba-4aa8-bd56-fab1a6f3e1c1" /> <img width="100" height="18" alt="tumblr_c098137af57d6943f8d269568fee0853_48251747_100" src="https://github.com/user-attachments/assets/66434ed3-2817-445c-b7ff-6344d1af90fc" /> <img width="98" height="18" alt="tumblr_ca89011de5783ab03c8703506449723f_70c263de_100" src="https://github.com/user-attachments/assets/0da25e8f-9287-4dd4-85f5-aaf42f98f67c" />
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=The+Girl+Next+Door&size=23&letterSpacing=0&pause=1000&color=FFB478&center=true&width=435&lines=thank+you+for+reading+!!" alt="Typing SVG" /></a>
 <p align="center"><img width="1640" height="250" alt="tumblr_f794596002bf19b63b81441a8c1925b8_56e8b460_2048" src="https://github.com/user-attachments/assets/77aa36c5-2126-40e3-901d-71b5a00c698a" />
