@@ -1,3 +1,6 @@
+<p align="center"><img width="400" height="80" alt="tumblr_1878633c7535a6525cbc8297a529beeb_2f02c8fa_1280" src="https://github.com/user-attachments/assets/3d04a2e3-a404-4975-bd68-b3730528d19d" />
+
+
 <p align="center">$\color{#972A5D}major \space wip \space rn \space gulps,, \space i \space also \space do \space not \space know \space how \space to \space code,,, \space im \space trying \space to \space learn \space from \space some \space guy \space from \space youtube$
 
 <p align="center">$\color{#972A5D}Hello! \space My \space name \space is \space indeed \space Elliot, \space please \space refer \space to \space me \space as \space Elliot!$
@@ -39,6 +42,14 @@
 </p>
 
 <p align="center">$\color{#D79771}TBA$
+ </details>
+<p align="center"><img width="100" height="18" alt="tumblr_fdfd11345e3fdf6dd65a1d09c5d0a20e_7fe62277_100" src="https://github.com/user-attachments/assets/576bc861-6aba-4aa8-bd56-fab1a6f3e1c1" /> <img width="100" height="18" alt="tumblr_c098137af57d6943f8d269568fee0853_48251747_100" src="https://github.com/user-attachments/assets/66434ed3-2817-445c-b7ff-6344d1af90fc" /> <img width="98" height="18" alt="tumblr_ca89011de5783ab03c8703506449723f_70c263de_100" src="https://github.com/user-attachments/assets/0da25e8f-9287-4dd4-85f5-aaf42f98f67c" />
+
+
+<p align="center"><img width="1640" height="250" alt="tumblr_f794596002bf19b63b81441a8c1925b8_56e8b460_2048" src="https://github.com/user-attachments/assets/77aa36c5-2126-40e3-901d-71b5a00c698a" />
+
+
+
 
 
 
