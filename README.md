@@ -2,6 +2,7 @@
 
 
 <p align="center"><img width="400" height="80" alt="tumblr_1878633c7535a6525cbc8297a529beeb_2f02c8fa_1280" src="https://github.com/user-attachments/assets/3d04a2e3-a404-4975-bd68-b3730528d19d" />
+<div></div>
 
 
 <p align="center">$\color{#972A5D}major \space wip \space rn \space gulps,, \space i \space also \space do \space not \space know \space how \space to \space code,,, \space im \space trying \space to \space learn \space from \space some \space guy \space from \space youtube$
