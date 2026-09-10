@@ -6,6 +6,8 @@
 
 <p align="center"><a href="https://hits.sh/github.com/elliot-builder-fictkin/"><img alt="Hits" src="https://hits.sh/github.com/elliot-builder-fictkin.svg?style=for-the-badge&label=%E0%BC%98%E2%8B%86%20CUSTOMERS%20SERVED%20!&extraCount=200&color=E4B883&labelColor=972A5D"/></a>
 
+hi so dont freak out but i MIGHT like actually die so that’s why if you notice im inactive. to my oomfies and Regis ty for being the reason i stayed longer you guys are awesome, sorry i made my git ugly EITH this message 
+
 <p align="center">$\color{#972A5D}major \space wip \space rn \space gulps,, \space i \space also \space do \space not \space know \space how \space to \space code,,, \space im \space trying \space to \space learn \space from \space some \space guy \space from \space youtube$
 
 <p align="center">$\color{#972A5D}Hello! \space My \space name \space is \space indeed \space Elliot, \space please \space refer \space to \space me \space as \space Elliot!$
