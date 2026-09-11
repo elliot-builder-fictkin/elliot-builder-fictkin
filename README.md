@@ -4,9 +4,7 @@
 <p align="center"><img width="400" height="80" alt="tumblr_1878633c7535a6525cbc8297a529beeb_2f02c8fa_1280" src="https://github.com/user-attachments/assets/3d04a2e3-a404-4975-bd68-b3730528d19d" />
 <div></div>
 
-<p align="center"><a href="https://hits.sh/github.com/elliot-builder-fictkin/"><img alt="Hits" src="https://hits.sh/github.com/elliot-builder-fictkin.svg?style=for-the-badge&label=%E0%BC%98%E2%8B%86%20CUSTOMERS%20SERVED%20!&extraCount=200&color=E4B883&labelColor=972A5D"/></a>
-
-hi so dont freak out but i MIGHT like actually die so that’s why if you notice im inactive. to my oomfies and Regis ty for being the reason i stayed longer you guys are awesome, sorry i made my git ugly EITH this message 
+<p align="center"><a href="https://hits.sh/github.com/elliot-builder-fictkin/"><img alt="Hits" src="https://hits.sh/github.com/elliot-builder-fictkin.svg?style=for-the-badge&label=%E0%BC%98%E2%8B%86%20CUSTOMERS%20SERVED%20!&extraCount=200&color=E4B883&labelColor=972A5D"/></
 
 <p align="center">$\color{#972A5D}major \space wip \space rn \space gulps,, \space i \space also \space do \space not \space know \space how \space to \space code,,, \space im \space trying \space to \space learn \space from \space some \space guy \space from \space youtube$
 
