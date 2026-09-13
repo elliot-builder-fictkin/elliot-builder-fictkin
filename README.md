@@ -70,6 +70,9 @@
   <img src="https://github.com/user-attachments/assets/0da25e8f-9287-4dd4-85f5-aaf42f98f67c">
 </a>
 </p>
+<div></div>
+<p align="center">$\color{#E4B883}my \space disc \space is \space elliot.builderr \space but \space please \space ask \space before \space sending \space a \space friend \space req \space or \space DM \space unless \space urgent \space or \space my \space friend \space !$
+
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=The+Girl+Next+Door&size=23&letterSpacing=0&pause=1000&color=FFB478&center=true&width=435&lines=thank+you+for+reading+!!" alt="Typing SVG" /></a>
