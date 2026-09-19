@@ -77,6 +77,13 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=The+Girl+Next+Door&size=23&letterSpacing=0&pause=1000&color=FFB478&center=true&width=435&lines=thank+you+for+reading+!!" alt="Typing SVG" /></a>
 <p align="center"><img width="1640" height="250" alt="tumblr_f794596002bf19b63b81441a8c1925b8_56e8b460_2048" src="https://github.com/user-attachments/assets/77aa36c5-2126-40e3-901d-71b5a00c698a" />
+<div></div>
+<img align="right"
+src="https://cdn.phototourl.com/free/2026-09-19-7f0e22ce-6f2c-4167-8b74-507befee855e.png" width="50%" />
+<div></div>
+<p align="center">$\color{#E4B883}going /space to /space be /space remade /space !$
+
+
 
 
 
