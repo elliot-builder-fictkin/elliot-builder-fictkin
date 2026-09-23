@@ -80,8 +80,8 @@
 <div></div>
 <img align="right"
 src="https://cdn.phototourl.com/free/2026-09-19-7f0e22ce-6f2c-4167-8b74-507befee855e.png" width="50%" />
-<div></div>
-<p align="middle">$\color{#E4B883}going \space to \space be \space remade \space !$
+<div></div> 
+<p align="middle left"> $\color{#E4B883}going \space to \space be \space remade \space !$
 
 
 
